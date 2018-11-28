@@ -1,1 +1,0 @@
-# academics-at.github.io
